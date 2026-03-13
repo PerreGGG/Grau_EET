@@ -7,4 +7,7 @@ Moltes coses les faig directamnet amb el portàtil ja que l'ordinador de casa em
 Segurament falla per tota la merda que hi he descarregat.
 En qualsevol cas, aquest serà un espai per poder anar **guardant projectes**, **pràctiques** o el que sigui que vulgui tenir en el núvol.
 I escriuré en aquest readme així també **aprenc markdown!**
-fhuahfuhaiufhau
+
+
+## FUCK TOT
+*elgueso* tamo en **new balance**
